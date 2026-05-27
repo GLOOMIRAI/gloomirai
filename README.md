@@ -6,6 +6,6 @@
 ୧‿̩͙ ˖︵ ──────⠀ ♡⠀ ────── ︵˖ ‿̩͙୨
 <br>
 <br>
-<span style="color: pink">ᴀɴʏ ᴘʀɴꜱ 𓏵 07 𓏵  ᴇɴᴛᴘ</span>
+<span style="color: #FFD1DC">ᴀɴʏ ᴘʀɴꜱ 𓏵 07 𓏵  ᴇɴᴛᴘ</span>
 
 
