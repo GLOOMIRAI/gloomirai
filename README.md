@@ -6,7 +6,7 @@
 ୧‿̩͙ ˖︵ ──────⠀ x⠀ ────── ︵˖ ‿̩͙୨
 <br>
 <br>
-.✦ ݁˖ 07 | any prns | entp ── .✦
+.✦ ݁˖ 07 | any prns | free to int! ── .✦
   
 > ˚˖𓍢ִ🩸. ݁𐙚 [ hi hello i am **sai** — most of the time you find me in twst area, but you can see me wandering around. i go by any pronouns, but i usually refer to myself in he/him. i am very open to interactions, but i'm also shy to start conversation sometimes. i also joke a lot, please let me know if i do something wrong or if i make you uncomfortable. english is not my first language, therefore i will do mistakes and this is something i can guarantee. sometimes i might not respond because i am afk, please whisper me if this scenario occurs. ]
 
