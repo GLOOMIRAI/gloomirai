@@ -1,7 +1,7 @@
 <p align="center">
 <img width="800" height="70" alt="image" src="https://i.postimg.cc/MTnRFSnS/2.png" />
   
-<img width="800" height="500" alt="image" src="https://media.discordapp.net/attachments/1530397071247544333/1537569477162569818/Untitled60_20260813231200.png?ex=6a7f84aa&is=6a7e332a&hm=8c119c8318eaa479c13972dba36998f01563a56b1c50be578f58ff5393e79f03&=&format=webp&quality=lossless" />
+<img width="800" height="500" alt="image" src="https://media.discordapp.net/attachments/1530397071247544333/1537569945301553252/Untitled60_20260813231200.png?ex=6a7f8519&is=6a7e3399&hm=ee11de85ec386cc90cbc4fb51a07ca123120a54317741bc77a73486b2a706cf9&=&format=webp&quality=lossless" />
 <br>
 <br>
 ୧‿̩͙ ˖︵ ──────⠀ x⠀ ────── ︵˖ ‿̩͙୨
