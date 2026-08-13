@@ -5,7 +5,7 @@
 ୧‿̩͙ ˖︵ ──────────────────⠀ x⠀ ────────────────── ︵˖ ‿̩͙୨
 <br>
 <br>
-<img width="500" height="100" alt="image" src="https://media.discordapp.net/attachments/1530397071247544333/1537569945301553252/Untitled60_20260813231200.png?ex=6a7f8519&is=6a7e3399&hm=ee11de85ec386cc90cbc4fb51a07ca123120a54317741bc77a73486b2a706cf9&=&format=webp&quality=lossless" />
+<img width="500" height="150" alt="image" src="https://media.discordapp.net/attachments/1530397071247544333/1537569945301553252/Untitled60_20260813231200.png?ex=6a7f8519&is=6a7e3399&hm=ee11de85ec386cc90cbc4fb51a07ca123120a54317741bc77a73486b2a706cf9&=&format=webp&quality=lossless" />
 <br>
 <br>
 ୧‿̩͙ ˖︵ ──────⠀ x⠀ ────── ︵˖ ‿̩͙୨
