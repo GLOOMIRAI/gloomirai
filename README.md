@@ -22,7 +22,7 @@
 <br>
 <br>
   
-> ᵎᵎ 𓐩 ⋅ ˚✮ [ **DO NOT INTERACT** if you are a minor, racist, xphobic etc., active israel supporter in ANY means. before you interact, keep in mind i do enjoy problematic media, though i do not like darkshipping. if you are a darkshipper (yes, slow damage fans i am looking at you all), stay away. i am anti-harrassment, though. i do not support harrassing people over a fiction,like, idk, by doxxing for an example... but i will not interact with you in this case. also i will ignore you if you make me uncomfortable. ]
+> ᵎᵎ 𓐩 ⋅ ˚✮ [ **DO NOT INTERACT** if you are a minor, racist, xphobic etc., active israel supporter in ANY means. before you interact, keep in mind i do enjoy problematic media, though i do not like darkshipping. if you are a darkshipper (yes, slow damage fans i am looking at SOME of you), stay away. i am anti-harrassment, though. i do not support harrassing people over a fiction,like, idk, by doxxing for an example... but i will not interact with you in this case. also i will ignore you if you make me uncomfortable. ]
 
 > ‧˚꒰🦇୭ ˚. [ i have uhhh, many fandoms... like, lobotomy corporation, twisted wonderland for first; slow damage, zeno remake, 14 days with you, toilet-bound-hanako-kun, pandora hearts, shtdn, omori, kuroshitsuji, creepypastas, the walking dead, the kid at the back, genshin, threads of you, a date with death, killer chat, servamp, sally face, bungou stray dogs, etc. i enjoy visual novels in general to be honest... alright thats all heheh ]
 
