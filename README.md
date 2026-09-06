@@ -1,13 +1,9 @@
 <p align="center">
-<img width="700" height="70" alt="image" src="https://i.postimg.cc/MTnRFSnS/2.png" />
 <br>
 <br>
 ୧‿̩͙ ˖︵ ──────────────────⠀ x⠀ ────────────────── ︵˖ ‿̩͙୨
 <br>
 <br>
-<br>
-<br>
-୧‿̩͙ ˖︵ ──────⠀ x⠀ ────── ︵˖ ‿̩͙୨
 <br>
 <br>
 .✦ ݁˖ 07 | any prns | free to int! ── .✦
