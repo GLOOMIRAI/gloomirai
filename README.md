@@ -4,5 +4,5 @@
 ୧‿̩͙ ˖︵ ──────────────────⠀ x⠀ ────────────────── ︵˖ ‿̩͙୨
 <br>
 <br>
-[strawpage](https://bnhjjn.straw.page)
+<a href="https://bnhjjn.straw.page">strawpage</a>
 </p>
