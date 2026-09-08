@@ -6,4 +6,4 @@
 <br>
 <br>
 <br>
-[for info : click there ](https://bnhjjn.straw.page)
+check my [strawpage](https://bnhjjn.straw.page)<br>
