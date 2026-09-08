@@ -11,5 +11,4 @@
 </p>
 <p align="center">
 <br>
-<br>
 <img width="450" height="300" alt="image" src="https://github.com/user-attachments/assets/849a2adb-06a6-42bd-a16e-be82f87c4d3b" />
